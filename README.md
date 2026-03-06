@@ -1,4 +1,4 @@
-## 🚀 Hi, I'm Martin (MartinAvgeek) 🚀
+## 🚀 Hi, I'm Martin J  🚀
 
 - 🔭 Self taught engineer 
 - 🌱 I’m currently learning GNC
